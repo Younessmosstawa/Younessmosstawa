@@ -8,4 +8,5 @@
 Younessmosstawa/Younessmosstawa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-I know that hamidi Chaffek know all about the cryptomoney 
+I know that hamidi Chaffek know all about i had finded the solution for all 
+I know the thinking of assmaa mokrane  the cryptomoney 
