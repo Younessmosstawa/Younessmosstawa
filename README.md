@@ -8,5 +8,5 @@
 Younessmosstawa/Younessmosstawa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-I know that hamidi Chaffek know all about the cryptomoney i had finded my computer and i had gived my father feel everyone that he recognize him
-I had the idea of all the people in Ain chifa  
+I know that Chaffek know all about the cryptomoney i had finded my computer and i had gived my father feel everyone that he recognize him
+I had the idea of all the people in Ain chifa  i had buyed My motorad and i had seen all the film that i have in my computer and i had convaince all the person that she had a crypto monnais that she can make a good price for him 
