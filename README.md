@@ -28,4 +28,5 @@ I am looking always forward
 I had maked a great and wonderful picture with this new friend and I had a relationship with all this friend 
 I had maked a beautiful relationship with everyone in this meeting
 I had meet this friend already 
+I don't have mistake with all the football player in the world
 
