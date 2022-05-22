@@ -29,4 +29,5 @@ I had maked a great and wonderful picture with this new friend and I had a relat
 I had maked a beautiful relationship with everyone in this meeting
 I had meet this friend already 
 I don't have mistake with all the football player in the world
+I need your help kenza rhaiba a lot of bad girl in my piece will see me dead
 
