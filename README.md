@@ -18,4 +18,7 @@ This day i had created a lot of website verry simple and quickly
 I had only the best and the amazing idea 
 I had discover a lot of new websites and I had maked a lot of money in all this websites I am looking forward and I had finded how to make money verry easy im internet 
 I am interested in how to make money easy im internet and I know how to make money im internet verry easy and verry quickly and I know the important website 
+I had finded the work im internet and i had worked now
+i had finded the best site im internet and i work in him
+I had doawnlod photoshop for free
 
