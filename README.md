@@ -21,4 +21,7 @@ I am interested in how to make money easy im internet and I know how to make mon
 I had finded the work im internet and i had worked now
 i had finded the best site im internet and i work in him
 I had doawnlod photoshop for free
+I make a story for every moment that I live and when I had arrived I had maked important relationship and I had forget all the moment with this men that he will know my secret but I have the patience 
+I habe alle moment mit dieser man vergisst 
+I make a story for every moment that I live and when I had arrived I had maked important relationship with Youness charkrad and with her friends
 
