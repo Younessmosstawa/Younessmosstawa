@@ -26,4 +26,5 @@ I habe alle moment mit dieser man vergisst
 I make a story for every moment that I live and when I had arrived I had maked important relationship with Youness charkrad and with her friends 
 I am looking always forward 
 I had maked a great and wonderful picture with this new friend and I had a relationship with all this friend 
+I had maked a beautiful relationship with everyone in this meeting
 
